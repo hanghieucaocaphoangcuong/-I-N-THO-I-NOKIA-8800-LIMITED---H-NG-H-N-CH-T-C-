@@ -1,0 +1,2 @@
+# -I-N-THO-I-NOKIA-8800-LIMITED---H-NG-H-N-CH-T-C-
+ĐIỆN THOẠI NOKIA 8800 LIMITED - HÀNG HẠN CHẾ ÍT CÓ Hoàng Cường trân trọng giới thiệu đến quý khách hàng sản phẩm diện thoại Nokia 8800 Limited nguyên bản chính hãng đảm bảo chất lượng.  Đến với Hoàng Cường bạn sẽ không phải lo lắng về chất lượng sản phẩm Nokia 8800 đồng thời nhận được những ưu đãi bất ngờ!!! http://cuong.vn/nokia-8800.html #Nokia8800 #điệnthoại8800chínhhãng  http://cuong.vn/nokia-8800-limited.html
